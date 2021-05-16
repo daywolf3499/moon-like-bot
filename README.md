@@ -1,1 +1,1 @@
-# horror furry (จีงแดง)
+# horror furry (จีนแดง)
